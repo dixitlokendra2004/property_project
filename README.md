@@ -19,3 +19,4 @@ https://photos.google.com/photo/AF1QipNyB4OhZzz8s38gDL9Vuk69o2jK5YQTGiWJRJg9
 https://photos.google.com/photo/AF1QipNOGMFIcm6rew8n8YDjnml4ffRmF3y4BI1IY71J
 https://photos.google.com/photo/AF1QipOmXY1X0GbDNMEu9GXDTbDGbsgy516cla7AzdvX
 https://photos.google.com/photo/AF1QipPQJGfXA84HwpsBVLe0c6JFxvSfmPwvwfN3i47u
+<img width="1854" height="970" alt="Screenshot 2025-09-27 at 8 07 33 PM" src="https://github.com/user-attachments/assets/38a1935f-9ce8-43ca-9ddf-e83f427499d0" />
